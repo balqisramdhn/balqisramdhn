@@ -1,4 +1,4 @@
-## Hi There! I'm Balqis Ramadhani🚀
+<h1>## Hi There! I'm Balqis Ramadhani🚀</h1>
 
 <p align="center">
   <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=600&size=24&pause=1000&color=FF6EC7&center=true&vCenter=true&width=435&lines=Career+Enthusiast;Creative+Designer+%26+Developer;Helping+Gen+Z+Find+Their+Path" alt="Typing SVG" />
