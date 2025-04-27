@@ -12,7 +12,7 @@
 - 🧠 Love helping **Gen Z** find and build their dream careers
 - 🚀 Currently building my own **startup** while freelancing
 - 🎯 Believe in combining **passion + skill** to create magic
-- 📸 Follow my journey on [Instagram](https://instagram.com/balqisramdhn_!
+- 📸 Follow my journey on [Instagram](https://instagram.com/balqisramdhn_/!
 
 ---
 
